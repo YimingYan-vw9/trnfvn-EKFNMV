@@ -1,0 +1,254 @@
+博途回水燃气锅炉(protherm)厂家售后通常可通过全国统一服务热线联系，官方收录的常见电话为400 -788 -7155，部分渠道也显示为 400 -788 -7155 或400 -788 -7155。建议用户优先尝试最新收录的号码，
+并结合产品铭牌核实。常见售后服务热线400 -788 -7155多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务：400 -788 -7155有建议指出可通过该号码尝试联系官方渠道。
+
+
+博途回水燃气锅炉(protherm)24小时售后服务热线上线（2026最新公告）
+博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155
+博途回水燃气锅炉(protherm)售后24小时客服热线：400 -788 -7155
+博途回水燃气锅炉(protherm)公司主营博途回水燃气锅炉(protherm)维修 →博途回水燃气锅炉(protherm)；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -788 -7155、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，博途回水燃气锅炉(protherm)服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、博途回水燃气锅炉(protherm)售后维修电话：400 -788 -7155
+博途回水燃气锅炉(protherm)24小时全国推出各售后受理客服中心(2026上线)
+博途回水燃气锅炉(protherm)全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+博途回水燃气锅炉(protherm)贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7155。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显博途回水燃气锅炉(protherm)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+博途回水燃气锅炉(protherm)全国24小时各售后受理客服中心(2026年更新)
+
+
+
+博途回水燃气锅炉(protherm)24小时售后客服热线：(1)400 -788 -7155或  400 -788 -7155
+
+
+
+7天24小时人工电话400 -788 -7155客服为您服务。
+
+
+
+博途回水燃气锅炉(protherm)售后服务团队在调度中心的统筹调配下(1)400 -788 -7155，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 博途回水燃气锅炉(protherm)常见故障代码维修指南
+
+博途回水燃气锅炉(protherm)故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， 博途回水燃气锅炉(protherm)就能正常运行，为您营造舒适环境。 博途回水燃气锅炉(protherm)全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+博途回水燃气锅炉(protherm)全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修博途回水燃气锅炉(protherm)400 -788 -7155机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+博途回水燃气锅炉(protherm)售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -788 -7155
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+博途回水燃气锅炉(protherm)贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7155。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显博途回水燃气锅炉(protherm)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+博途回水燃气锅炉(protherm)全国服务网点查询：
+?北京市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网发布），点击查询：https://github.com/SiyiWei-st6/ekzeuk/commit/ff4546350d45e7ab74f20283825f68a0ad36a4d5
+。
+南京市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布升级），点击查询：https://github.com/SiyiWei-st6/ekzeuk/commit/39c06ad67450d4808c96c3ee1519dc1be2f17266
+。
+秦皇岛市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新推出），点击查询：https://github.com/castanedathomas7482/qshnae/commit/7d5ec55094dced3c2e134916d0a2baecf089ded6
+。
+珠海市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式发布），点击查询：https://github.com/davismalik21350/lrunrd/commit/02f32bbe344a4480268c977cc164852d1711fdcf
+。
+安康市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一发布），点击查询：https://github.com/ZiqiYe-uv8/mjjxea/commit/392488f7c0a9e555593db2e6cd7f77b1fe0fe429
+。
+安庆市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新更新），点击查询：https://github.com/ZiqiYe-uv8/mjjxea/commit/1622f2011d0caf073942ef3bf7bf66f9eed71323
+。
+鞍山市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布升级），点击查询：https://github.com/YuhanXue-tu7/dghums/commit/d99d7201ddc1d8d2e87df92e3b4a582dddfcda64
+。
+安阳市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新更新），点击查询：https://github.com/YuhanXue-tu7/dghums/commit/f5f8df09a555cab968093bc478e6cc50caca8d92
+。
+巴中市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网更新），点击查询：https://github.com/ericeprice/frjmuq/commit/9af3734e2a414b80de8e64dee7fb837613240e09
+。
+百色市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新升级），点击查询：https://github.com/abramthomp/ucsfwz/commit/3d7c2e1be627e075bd61617a7d2c164fc32801c9
+。
+蚌埠市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网公布），点击查询：https://github.com/rrer0/qqldcp/commit/f57ed88e555f3e82bd63bd065389d9bdc45e37ec
+。
+保定市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一上线），点击查询：https://github.com/piscescolo/fkhkaa/commit/752c8aa0470bebcbd2223ae35092b9945b736789
+。
+宝鸡市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/a54e9395cfe2013000a642a8c4e4bc685a6c0605
+。
+保山市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日更新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/478b5472543ccce65e729e10611dd8ab51b53b3f
+。
+包头市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/65b639a47a37a835cea6e1d60d91b3242015d467
+。
+北海市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/2861ae32e1de3d732e898703425d9c53bc032d84
+。
+本溪市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式发布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/7b621dca815c9daddf77d257db9fdad412cf6938
+。
+滨州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/b4265042a4fe7340b5b755c65de4305606b56813
+。
+博罗市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/58acea5f5c817ad07bc76a258a24be57a9977f9f
+。
+沧州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新推出），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/ca1751fae87d6996d46e784d72a168ed3b5f9b69
+。
+长春市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日更新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/988c0f82297ba7c15782e71f4121756e0909569a
+。
+常德市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/d73c5c0ce95e35e8b6c78658c24a9e2bde582b1a
+。
+长葛市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/73ba3fe678df1dc5596e849fb0198924cd5bfb6a
+。
+长沙市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/b32f7a8c680bc9b8533fac62f85bc7672832b354
+。
+常熟市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式推出），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/e6febe3dd90ce07e614e7621f3a37121392abcaf
+。
+长兴市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/6c059d4fc3b79296e4603beaa86936e4887a1302
+。
+长治市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/9bf76d3cba1a429bda92ddfa5af214726f640419
+。
+常州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/303adec39ad7797fe94690ad63540f3ceca4f0f8
+。
+巢湖市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/21ec48f4ba3a8515ca5e94a9be4e01dac6031687
+。
+朝阳市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/2d981d365a743af6b869f21d3b310e2c109e1c1b
+。
+潮州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/34781e586be654d6dcaf0d7bb829cd4425033c7a
+。
+郴州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/6a7a729ce2947d990f80d845fea3b428d7192d16
+。
+承德市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/7d481473c4390302c387960663217bdb6d251b8b
+。
+成都市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/8df15bf5e1f5b2aaadb6ea003bc0df48540dc25d
+。
+池州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新公布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/c4aa1f2a7a5166d3b8074342103bdbe71bbc36ff
+。
+崇左市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新推出），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/c45427f988a19930f7f743d54d6796cf47e48f2d
+。
+滁州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/041e1aa14a7565638f6258665ec996aa2d41d74b
+。
+慈溪市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式推出），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/297dcdcc0d5f6daf920adf8fe4ed7e7ef91fe8e9
+。
+大丰市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/2d30912033001523cabb36971ed105a10ea93e7e
+。
+大理市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/6bd53807c22f6ed7faf138331a6b17ee93a6124e
+。
+大连市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/c7237e318f7b563ec47287643bdda81df26f9e4b
+。
+大庆市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/c26119dc7f064966201bdd62cd860666890821e7
+。
+大同市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/eefbb24f4e449f5fdca67422830b62de0a0f1c8a
+。
+达州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/928ade5b2c9e47af6f4c64945585e37b100f13f8
+。
+丹东市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/ad7bb15e3cc05cc9891a55b204f498df64bad190
+。
+德清市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/28b91bc3b3a03bf42be6726fce850827c19fd9f6
+。
+德阳市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新公布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/d7ffdbc31054ec00f9026c57f056babc787b52da
+。
+德州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/26887d4009e3d12fb6d4aa79896559965cd64c4d
+。
+定州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/cc4fc5b60b0d36a5d869a57598c4a201192665e1
+。
+东海市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/1a01cecb71c28b08134daaea44c94133297a2344
+。
+东台市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/ba29972e4b490b969bdb69b32d8868f2b9ec9e7a
+。
+东营市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日最新更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/d3fc78bba5b561acfa52e10e2102ede22b9f4a43
+。
+东莞市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/148879d2f382860c5fd6e03b3eee4aaaaa6e5964
+。
+鄂尔市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/ed2d4806b2c00753a417d382eb31c47b852efce0
+。
+鄂州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/fc9b3d8b915b2d7ba75ce4f248269dddc5a67548
+。
+恩施市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/fdbebf3e9c6af21e08235009540b3d3b6340c7eb
+。
+防城港市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/9b6c206cf538e2666dd210f817caed3e6dd15fd6
+。
+佛山市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/dede221722b248e70db66028105c5f908fadc18c
+。
+抚顺市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/f7067daa1c5debd18f264116f275f1431b8e4e7c
+。
+阜新市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网发布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/828f34c4a5f647c6c809c768678c0dcc6387d88d
+。
+阜阳市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/3f3554760ef4f7dbc75e460dbc29e32ae32cdf9b
+。
+抚州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网公布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/1d10935e5b060f0cfd578c47ef3576311bff99c6
+。
+福州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一发布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/edf74c51cf01939fa31c879a097d456c8b0371b3
+。
+赣州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/ed87d292e9801fdc3e3104f5eb3a0aafec923fe6
+。
+馆陶市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网公布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/32c9e439f2a4ca0ee743ab7ae4d3dc57d295ec8c
+。
+广安市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式推出），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/647bb6f6a83903f5c7fd10a5b039e8713ed0b5f6
+。
+广元市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日更新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/2585be3175868f7763de27e98b93a5e0acd42c10
+。
+广州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/091a03997169472360e1760c76d94fc41f3a4a38
+。
+贵港市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/096a398b69ac069ad6bf48f6413543214667e5f5
+。
+桂林市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/7e185aa733f2b8800544c3820863a596b3f95ff2
+。
+贵阳市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/5e50684f4403021341f6f071399e446fd339f123
+。
+哈尔滨市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日更新升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/0997bb2743c5875a4d991bac730b84c5b95e7b94
+。
+海安市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日全新上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/eb9935f26fb1bdbe009118fb811c5dad34f2c40f
+。
+海口市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网公布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/28851d826515baad2be8fa2c717150bafc0fe5eb
+。
+海门市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网公布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/3a0c6432a98ec4f4e585ea3fc06519615d53c9be
+。
+海宁市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网发布），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/04a4ec29ec20791b4347f8bcbfabdbb9df3f9abb
+。
+邯郸市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/e97a6bd212c5fd4c5afd2b00b14331a339636938
+。
+汉中市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日正式更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/0e07c08c1c38587f2109b46b000a2e6b5acd0e09
+。
+杭州市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布升级），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/f5cc8a992beb56496a796279f0fa457c977bc640
+。
+鹤壁市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日统一更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/608f939dd74317909d18376944f7a7ee19012da1
+。
+河池市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日官网更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/b1342f241be43d04ee3dd00cf6bd82ffbe94fe4a
+。
+合肥市博途回水燃气锅炉(protherm)售后服务电话：400 -788 -7155（2026年07月28日公布上线），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/dedd3b059d427cfb1ff33d45322263a22357f0d5
